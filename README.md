@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alexobrmfRMD
 - 👀 I’m interested in app for faster android
-- 🌱 I’m currently learning names for porn stars
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning new names of porn stars
+- 💞️ I’m looking Serbian or someone for chatting and chatting.....
 - 📫 How to reach me ...
 00381631480858 on VIBER
 <!---
